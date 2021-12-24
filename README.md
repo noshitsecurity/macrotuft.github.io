@@ -1,7 +1,7 @@
 <br /><br />
 <br /><br />
 
-# Welcome, bugs! Please review our fine Persian rugs!
+# Fine Persian Rugs
 <hr /><br />
 
 <br />
