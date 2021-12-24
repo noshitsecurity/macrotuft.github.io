@@ -23,4 +23,4 @@
 <br /><br />
 
 
-For more awesome crumbs, check out sincera's <a href="T0o/SEs5O0lKPz5JRURjPT1iOkhFOUk/OmNjbklGSko+" />pandora</a>!
+For more awesome crumbs, check out sincera's <a href="T0o/SEs5O0lKPz5JRURjPT1iOkhFOUk/OmNjbklGSko+" />pandora
