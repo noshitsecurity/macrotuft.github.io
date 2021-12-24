@@ -19,3 +19,8 @@
 
 <img width="200" src="img/rugs/9632.jpg" />
 </div>
+
+<br /><br />
+
+
+For more awesome crumbs, check out sincera's <a href="T0o/SEs5O0lKPz5JRURjPT1iOkhFOUk/OmNjbklGSko+" />pandora</a>!
